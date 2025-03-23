@@ -6,3 +6,4 @@ Supported languages  Italiano🍕English🏰Français🥖Deutsch🍺Español💃
 ![Alt text](preview3.png)
 
 COMMERCIAL LICENSE.
+Contact me privately.
